@@ -1,0 +1,54 @@
+
+---
+title: The legend of ljn, a game company, which is rich in junk games
+date: 2019-11-08 00:00:00
+tags:  Game
+---
+Ask, what kind of game can be called "bad game"?  
+Maybe they have a very bad operation, maybe they have annoying bugs, maybe they have harsh sound effects, or they don't play like a game at all, or they seem normal but actually make a mess. Bad games can bring poor game experience to the players, but I believe that no matter which company is willing to make a very bad game, after all, the meal is just right, even the first-line large factories will occasionally make a cold work with poor performance, but I think they are not allowed to do it.
+But you know that there is a game company, 99% of all the games he has done in his life are bad games. Although the company is no longer there, you have to admit that it is also a kind of ability to do bad games for a lifetime from a certain point of view, and the company, ljn.
+![The legend of ljn, a game company, which is rich in junk games](4c6cdae5d1dc4c2fb8b67e1f5211768e.jpg)
+If you know James, a famous presenter of a 404 website in foreign countries, you will not be unfamiliar with the name ljn. In the show of jet God, the game released by ljn is not rare to appear in the program, and most of the time, ljn will be completely sprayed. Because of its bright logo, ljn is also called "death" by the audience and players Death of rainbow, garbage lady and so on. But one thing rarely mentioned in the show is that ljn's main business is not video games, but toy industry.
+![The legend of ljn, a game company, which is rich in junk games](fc96d8c9d76845139e48f7c45835b437.jpg)
+For Gushen, the name ljn is synonymous with bad games
+#Toy factory ljn
+Jack Friedman is a single parent boy. He was born in Queens, New York in the late 1930s. He loved all kinds of toys since he was a child. At that time, the popular Yo Yo and small metal model car were his favorite. In view of his love for toys, he aspires to be engaged in the toy industry when he grows up, and takes this dream as his lifelong goal.
+Jack has witnessed the beginning and end of the Second World War in his life. As we all know, after the Second World War, the economic situation of the United States has continued to rise. According to the provisions of the then American veterans act, all veterans can receive a certain degree of knowledge education, and at the same time, they can obtain an unconditional loan for entrepreneurship, so as to promote the whole country All kinds of industries have seen a significant rise, including the toy industry.
+![The legend of ljn, a game company, which is rich in junk games](7cd993e83ac14590b982a114171682e8.jpg)
+Yo Yo has been around since BC
+When Jack was 20 years old, he joined a toy company in New York as a sales representative. Naturally, all the people who worked as a sales representative knew what he was doing. It was not a particularly easy job, but even so, Jack still loved his job because it was connected with toys. After a period of time, after accumulating a lot of social experience, he came up with the idea of starting his own game company. He was serious about his work. Norman J Lewis, his former boss, was willing to provide him with financial support. Jack was very grateful for this, so he reversed the initials of his boss's name as his company's name , this is ljn.
+![The legend of ljn, a game company, which is rich in junk games](ef09b8f7f03c4872a69d5f0e3b557e57.jpg)
+Jack Friedman
+Jack is a man with a very advanced vision. He realizes that the combination of toys and pop culture works will surely generate huge business opportunities. So for a long time, ljn only focused on the authorized peripheral toys of other pop culture works, and soon won great success. For a time, ljn became the toy company with the fastest progress in that era.
+In the 1980s, ljn's popularity in the industry was beyond our reach, which naturally attracted many companies to take its revenue under our control. MCA, the parent company of global film industry, planned to build a perfect industrial chain between global film industry and ljn. Making movies here, making toys for movies there, can be said to be double happiness.
+With the rise of the video game industry, ljn is also planning to launch video games at this time. It seems that movie adaptation game is a good plan, so ljn accepted the acquisition of MCA.
+![The legend of ljn, a game company, which is rich in junk games](bd652b477f844b54b1d3d01fc70476e7.jpg)
+All the films produced by universal at that time were classic works
+#  "dung factory" ljn
+For ljn, it's a good thing to be bought by a famous company at a high price, but Jack, as the founder, is not happy. In his opinion, the company he founded has become the property of others, and he has no complete control right, so he chooses to leave.
+As he said, Jack's departure has no impact on the company. Ljn still wants to launch video games. They have successively obtained many movie copyrights from MCA for developing adaptation games, such as Spielberg's jaws, Robert zemikis's back to the future series, etc., except for the IP of their own films It also includes many third-party authorized IP games of popular TV series and cartoons at that time.
+![The legend of ljn, a game company, which is rich in junk games](32079d2e33ac432bbfab8ee060cad5f1.jpg)
+Jaws ljn's NES game
+These games are mainly aimed at the US version of Nintendo's home console nes. From the program "spray God James", we can know that these games are basically bad games, which always contain such and such problems, such as many bugs, high repetition of game process and content, confusing operation and play methods, ambiguous settings, etc.
+However, it is worth mentioning that although ljn has numerous rotten games, there is no work developed independently by ljn, ljn is only the publisher of the game and is responsible for the authorization of IP, while the development work is left to a third-party studio, and there have been famous ones such as rare, who developed 007 golden eye, and Atlus, who developed the goddess reincarnation series Team.
+The reason why they can't be seen on the cover or package of the game is that at that time, game developers in the industry basically didn't have the right to sign their names, which was a very common phenomenon at that time. If you want to get authorization, you have to get the approval of the publisher, which is also why so many games will hide the pictures or names of the producers in the eggs of the game 。
+![The legend of ljn, a game company, which is rich in junk games](f37279aa8ac24e05876466b18b90613a.jpg)
+The yadali 2600 game "adventure" colored egg appeared in the movie "top player" is also born as a result
+# self inflicted
+No matter how bad ljn's game is, as long as it has the authorization of those famous IPS, it can be sold at that time, and the sales volume is still considerable. So why can't we see ljn now? Don't forget that ljn's main business is still a toy company. Two successive acts of death completely declared ljn's death.
+In 1986, ljn launched a series of electric water guns called entertech, which is no surprise, but the appearance of this series of water guns is almost the same as that of the real guy, and the high degree of simulation will naturally lead to some problems that could not exist. Because of the shape of the simulation water gun, children are often shot outside the police. Even many criminals can use these toys to carry out criminal activities. Ljn has also been greatly hit by successive incidents. Many cities have banned the sale of simulation toy guns.
+![The legend of ljn, a game company, which is rich in junk games](926c34a33d7442c88b3e8aced06c7728.jpg)
+The model of entertech
+Ljn really remembers to eat or not to fight. After encountering Waterloo once, it launched an air gun that can shoot color bullets. The difference between this gun and the BB bullet model gun we used to play when we were young is not too much. Anyway, it is a lethal toy. At the same time, its own design also has defects, which once again led to controversy. Almost all color bullet guns sold Ljn lost $35 million as a result of all returns.
+![The legend of ljn, a game company, which is rich in junk games](df020798b0b54802a268d4782a40ff8b.jpg)
+The name "gotcha" comes from the action comedy film of the same name
+Faced with these problems, MCA, the parent company, can't bear it any more. They don't want to cause unnecessary trouble for this, so they bite their teeth and sell ljn to acclaim, another company. Acclaim is the developer of the famous fighting game "real quick fight" series. After ljn came, they immediately ordered to stop ljn's toy department and change it to a pure video game publisher. Later, due to the relaxation of various distribution policies, ljn was immediately absorbed by acclaim.
+Since then, ljn has disappeared. The last time ljn appeared was in 2000. Ljn released a racing game named "the spirit of speed 1937" to log in to Sega DC host. No one knows why the annexed ljn can release the game alone, but only knows that the quality of the game is still the same, which is called "the worst game in 2000".
+![The legend of ljn, a game company, which is rich in junk games](70e05b70bf974e03b91ef773dd37704b.jpg)
+The title of "the worst game of 2000" comes from gamespot, an overseas authoritative media
+End of       
+Since then, ljn has lost its voice, but it is worth mentioning that Jack, the founder of ljn who chose to leave after ljn was acquired, did not continue to work in the toy industry, but founded another game company. This company is the THQ that we are very familiar with, and has released famous game series such as "the black way saints" and "dark blood".
+History is always strikingly similar. After playing a round of games, JACK feels that he is not suitable for the industry. He is also popular with young people. It seems that the toy industry is more suitable for him. So he chose to leave again. After Jack left, THQ immediately ushered in a bankruptcy and reorganization. Jack went back to his old business and founded another company, jakk's Pacific, which focuses on the toy industry. Now, jakk's Pacific specializes in developing peripheral toys for Nintendo's IP and Star Wars series, and has survived so far.
+![The legend of ljn, a game company, which is rich in junk games](6d746911ead045fe84133616a478ec4a.jpg)
+Nintendo's licensed toys from jakk's Pacific
+Unfortunately, Jack died in 2010 because of some serious blood disorder. He was 70 years old. He had to admit that he was really a god of management. He devoted his whole life to the toy industry and charity industry. He could make three companies with global weight in his life. This love The spirit of career is really worthy of our respect.
